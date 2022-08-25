@@ -31,3 +31,5 @@
 ![лучше так](https://sun9-17.userapi.com/impg/qyIs7BpjE_69sIjbdl7-KPGX9IO7PD3atSGG_A/3if8U9qCcgM.jpg?size=1170x780&quality=96&sign=cd323731c4a6597b5e08310dda948acd&c_uniq_tag=BsFnt5Aas52bhlRmRrXJLCL-yOmsmG8BC1UmWZ5qlR4&type=album)
 
 ВСЕМ СПАСИБО!!!!
+
+тестирую добавление.
